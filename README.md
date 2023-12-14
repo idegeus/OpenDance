@@ -16,7 +16,9 @@ The primary
   * Salsa (On 2, On 1, Cuban, Columbian), Bachata (Bachatango), Kizomba, Zouk (ZoukLove, LambaZouk, MZouk)
   * Footwork
   * Rueda de Casino
+    * Couple balancing and level determination
   * Line Dancing
+* Practicing with partners, at home coordination. I can't practice at home! 
  
 # For Dance Schools
-* 
+* Dancing 
